@@ -8,6 +8,8 @@
 &emsp;
 <p align="center"><img src="https://64.media.tumblr.com/651fb82f89ecdcf3d0d091a266393cc9/de77b7273f8c74cf-3b/s500x750/e83bb1fc01a009ad712bb2a3ca999a3bbb9b98b3.pnj"/>
 
-HAI! i hold love for far too many things.. but especially music n' history
+<p align="center">HAI! i am a lover of music and history and my hunger and pursuit of knowledge for it is evergrowing
 
-i may not be great at talking to people but I LOVE OBSERVING PEOPLE! i will get along with almost anyone
+<p align="center">i can be socially awkward but i'm TRYING MY BEST! i'm more than happy to interact with anbody stranger or not and i would luv to make ponytown friends. i may not be great at talking to people but I LOVE OBSERVING PEOPLE! i will get along with almost anyone
+
+<p align="center">i'm currently into michael jackson but check my listo for my interests . and my other links THANX
