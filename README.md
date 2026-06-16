@@ -10,6 +10,6 @@
 
 <p align="center">HAI! i am a lover of music and history and my hunger and pursuit of knowledge for it is evergrowing
 
-<p align="center">i can be socially awkward but i'm TRYING MY BEST! i'm more than happy to interact with anbody stranger or not and i would luv to make ponytown friends. i may not be great at talking to people but I LOVE OBSERVING PEOPLE! i will get along with almost anyone
+<p align="center">i can be socially awkward but i'm TRYING MY BEST! i'm more than happy to interact with anbody stranger or not and i would luv to make ponytown friends. i may not be great at talking to people but i love observing people! i will get along with almost anyone
 
 <p align="center">i'm currently into michael jackson but check my listo for my interests . and my other links THANX
