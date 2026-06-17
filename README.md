@@ -5,7 +5,7 @@
 <p align="center">⠀⠀⠀᭥  ‎  ‎ ‎    adhd ﹢ vss   ‎  ‎‎   ۪.   ‎ ‎   avoidant ‎    ݁ ‎ —⠀⠀  
 <p align="center">trans queer⠀⁔⠀he/him<a href="https://en.pronouns.page/@nowhereman">+</a>
 <p align="center">—‎‎ ‎ ‎  ݁ ‎ ‎ 8teen ‎ ‎  ༘ 8.21.24 ♡  
-<p align="center"><a href="https://bananapancake.straw.page/">sp</a> <a href="https://listography.com/8012422459">listo</a> <a href="https://poke.atabook.org/">ata</a> <a href="https://toyhou.se/Kulakom">th</a> <a href="https://www.last.fm/user/kulakom">lastfm</a>
+<p align="center">𓏵  ׅ           <a href="https://bananapancake.straw.page/">sp</a>‎‎   ; ‎ <a href="https://listography.com/8012422459">listo</a>‎ ‎  ; ‎ <a href="https://poke.atabook.org/">ata</a>‎  ‎ ; ‎ <a href="https://toyhou.se/Kulakom">th</a>‎ ‎  ; ‎ <a href="https://www.last.fm/user/kulakom">lastfm</a>‎ ‎    ‎ ‎               . 𓏵
 &emsp;
 <p align="center"><img src="https://64.media.tumblr.com/651fb82f89ecdcf3d0d091a266393cc9/de77b7273f8c74cf-3b/s500x750/e83bb1fc01a009ad712bb2a3ca999a3bbb9b98b3.pnj"/>
 
