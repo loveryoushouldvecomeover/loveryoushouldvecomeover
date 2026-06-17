@@ -1,6 +1,6 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cantarell&duration=3000&pause=800&color=878787&center=true&vCenter=true&width=435&lines=wait+-+'til+i+come+back+to+your+side;we'll+forget+the+tears+we+cried;but+if+your+heart+breaks;don't+wait+-+turn+me+away;and+if+your+heart's+strong;hold+on+-+i+won't+delay;wait+-+'til+i+come+back+to+your+side;we'll+forget+the+tears+we+cried;i+feel+as+though%2C+you+ought+to+know;that+i've+been+good%2C+as+good+as+i+can+be;and+if+you+do%2C+i'll+trust+in+you;and+know+that+you+will+wait+for+me" alt="Typing SVG" /></a>
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/916875231078019085/1516105933741101186/ezgif.com-crop.gif?ex=6a316f2e&is=6a301dae&hm=346bf037f78df54dbdff81b77d09943455b72cfa01755077b0c16f2108117518&"/>
+<p align="center"><img src="https://file.garden/ZgYpXoo9YF7EdBoH/github/ezgif.com-crop%20(1).gif"/>
 
 <p align="center">⠀⠀⠀᭥  ‎  ‎ ‎    adhd ﹢ vss   ‎  ‎‎   ۪.   ‎ ‎   avoidant ‎    ݁ ‎ —⠀⠀  
 <p align="center">trans queer⠀⁔⠀he/him<a href="https://en.pronouns.page/@nowhereman">+</a>
