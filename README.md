@@ -13,4 +13,4 @@
 
 <p align="center">i can be socially awkward but i'm TRYING MY BEST! i'm more than happy to interact with anbody stranger or not and i would luv to make ponytown friends. i may not be great at talking to people but i love observing people! i will get along with almost anyone
 
-<p align="center">i'm currently into michael jackson and prince but check my listo for my interests . and my other links THANX
+<p align="center">i'm currently into michael jackson but check my listo for my interests . and my other links THANX
